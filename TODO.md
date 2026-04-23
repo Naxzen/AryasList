@@ -2,4 +2,4 @@
 - Cersei Lannister
 - La Montagne
 - Meryn Trant
-
+- Toto (mort accidentelle, pas Arya)
