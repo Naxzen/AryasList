@@ -3,3 +3,4 @@
 - La Montagne
 - Meryn Trant
 - Toto (mort accidentelle, pas Arya)
+- Titi (tué par Arya)
